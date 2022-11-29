@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @jxshwq
+- 👀 I’m interested in dicks
+- 🌱 I’m currently learning Golang
+- 💞️ I’m looking to collaborate with NASA
+- 📫 How to reach me @jxshwq on ig
